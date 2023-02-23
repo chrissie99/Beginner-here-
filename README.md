@@ -1,0 +1,1 @@
+# Beginner-here- I am well aware that I'm breaking 1 kazillion rules but please take it easy on me. I want to learn. I spend nights on this site phone and would just be nice to actually know what I'm doing instead of changing settings and I'm convinced, I've had led myself. Here's hoping I wax this in time !
